@@ -4,7 +4,7 @@ _Naples, FL • mwsaunders@usf.edu • (239) 206-6881_
 ---
 
 ## Objective  
-PhD student seeking part-time work in a fast-paced café. Known for being punctual, fast to learn, and calm under pressure. Eager to support a team, interact with customers, and keep things running smoothly — even during the rush.
+PhD student seeking part-time work. Known for being punctual, fast to learn, and calm under pressure. Eager to support a team, interact with customers, and keep things running smoothly — even during the rush.
 
 ---
 
