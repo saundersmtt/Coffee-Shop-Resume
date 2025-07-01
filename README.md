@@ -4,16 +4,18 @@ _Naples, FL • mwsaunders@usf.edu • (239) 206-6881_
 ---
 
 ## Objective  
-Enthusiastic and dependable PhD candidate seeking part-time work in a fast-paced, customer-oriented environment. Committed to showing up, learning quickly, and supporting a friendly team atmosphere.
+PhD student seeking part-time work in a fast-paced café. Known for being punctual, fast to learn, and calm under pressure. Eager to support a team, interact with customers, and keep things running smoothly — even during the rush.
 
 ---
 
 ## Skills  
-- Strong multitasker under pressure  
-- Highly punctual and organized  
-- Friendly, approachable communicator  
-- Comfortable with POS systems and computers  
-- Quick learner, detail-oriented  
+- Friendly and clear communicator  
+- Stays calm and focused during busy times  
+- Learns quickly and takes feedback well  
+- Reliable, punctual, and respectful of routine  
+- Comfortable with technology and POS systems  
+- Committed to cleanliness and organization  
+- Enjoys working as part of a team  
 
 ---
 
@@ -40,3 +42,10 @@ _University of South Florida – Expected Fall 2025_
 
 **Bachelor of Science, Physics**  
 _University of South Florida – 2017_
+
+---
+
+## Additional Info  
+- Regularly complete lab safety and EH&S training (chemical hygiene, equipment safety, emergency procedures)  
+- Experienced working with specialized lab equipment and maintaining clean, safe workspaces  
+- Enthusiastic home espresso maker, eager to learn more about café equipment and service  
