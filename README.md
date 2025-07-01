@@ -29,7 +29,7 @@ _University of South Florida – Tampa, FL (2017–Present)_
 - Regularly communicated with students and staff to resolve issues and keep things running smoothly  
 
 **Lab Systems Administrator**  
-_USF Molecular Biophysics Lab (2017–Present)_  
+_Computational Soft Matter Lab, USF Physics (2017–Present)_  
 - Maintained lab infrastructure, including scheduling, user accounts, and shared computing resources  
 - Handled long-running jobs, troubleshooting, and multi-user priorities with a calm, service-oriented mindset  
 
