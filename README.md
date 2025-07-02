@@ -38,7 +38,7 @@ _Computational Soft Matter Lab, USF Physics (2017–Present)_
 ## Education  
 
 **PhD Candidate, Cell & Molecular Biology**  
-_University of South Florida – 2017 - Present_
+_University of South Florida – Expected 2025_
 
 **Bachelor of Science, Physics**  
 _University of South Florida – 2017_
