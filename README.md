@@ -4,7 +4,7 @@ mwsaunders@usf.edu • (239) 206-6881
 ---
 
 ## Objective  
-PhD student seeking part-time work at a cozy, people-focused café. Known for being reliable, quick to learn, and calm under pressure. I'm excited to contribute to a space like Felicitous — a place built on warmth, community, and a love of craft.
+PhD student seeking part-time work at a cozy, people-focused café. Known for being reliable, quick to learn, and calm under pressure.
 
 ---
 
